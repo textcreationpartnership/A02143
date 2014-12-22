@@ -37,9 +37,21 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Pandosto the triumph of time. VVherein is discouered by a pleasant historie, that although by the me
+
+1. TO THE GENTLEMEN READERS
+HEALTH.
+
+1. TO THE RIGHT HOnorable
+George Clifford Earle of Cumberland,
+Robert Greene wisheth increase
+of honour and vertue.
+
 #####Body#####
-Pandosto the triumph of time. VVherein is discouered by a pleasant historie, that although by the me
+
+1. THE HISTORIE OF
+DORASTUS AND
+FAWNIA.
+
 **Types of content**
 
   * There are 6 **verse** lines!
